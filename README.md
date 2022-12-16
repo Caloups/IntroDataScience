@@ -2,7 +2,7 @@
 
 ## A data practical on Home Advantage
 
-Hi there, if you are interested on football and would like to increase the chance of seeing your team win, have a look !
+Hi there, if you are interested on football and would like to increase the chances of seeing your team win, have a look !
 
 * PD: If you are bored or curious take a look too, who knows you might enjoy it 
 
